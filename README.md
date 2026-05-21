@@ -1,2 +1,0 @@
-# paramianita
-soloparaella
